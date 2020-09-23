@@ -1,1 +1,2 @@
-Write out some of your awesome attrib 
+**God is number one
+_I love my family

@@ -1,1 +1,5 @@
-God, Family, Girlfriend, Friends, Food
+- God
+- Family
+- Girlfriend
+- Friends 
+- Food
